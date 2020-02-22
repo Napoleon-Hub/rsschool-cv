@@ -1,4 +1,4 @@
-<h2> **Dumchev Bogdan** 
+<h2> Dumchev Bogdan
 
 <h2> Contact Info
 
